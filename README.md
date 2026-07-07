@@ -1,1 +1,1 @@
-Epilepsy Pro App
+Epilepsy Pro App. 
